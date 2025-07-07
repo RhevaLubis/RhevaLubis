@@ -14,22 +14,20 @@ Hi, I'm **Rheva Lubis**, a passionate video editor with **16+ years of experienc
 ---
 
 ## 📽 Featured Projects
-- **Documentary** – [Title or link here]
-- **TV Commercials** – [Title or link here]
-- **Social Media Content** – [YouTube Playlist / Instagram Reels / TikTok]
-
+- **Documentary** – 
+- **TV Commercials** –
+- **Social Media Content** – 
 ---
 
 ## 🌐 Portfolio Links
-- 🔗 [YouTube Channel](#) *(Insert your link)*
-- 🔗 [Behance Profile](#) *(Insert your link)*
+🔗(https://drive.google.com/drive/folders/1xdOa_WUBNOBe3PaBAQQ309TpXF8kCJQ1)
 
 ---
 
 ## 📫 Contact Me
 Let’s collaborate or discuss your next creative project!
 
-📧 rheva@email.com *(replace with your actual email)*  
+📧 bunbembunbem@gmail.com  
 📍 Based in Indonesia
 
 ---
