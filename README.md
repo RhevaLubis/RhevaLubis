@@ -17,7 +17,7 @@ Hi, I'm **Rheva Lubis**, a passionate video editor with **16+ years of experienc
 - **Documentary** – https://youtu.be/1H6Gg5fXyhA ; https://youtu.be/LPhrwFpQIZQ ; https://youtu.be/-kyq8_BZ_NU
 - **Commercials** – https://youtu.be/xPofogYcV9U ; https://youtu.be/NlOaIXKvoKY ; https://youtu.be/rOCW25MvbXM
 - **Podcast** –  https://youtu.be/xSwNuRZNKn8 ; 
-- **Social Media Content** – https://youtu.be/-OTgJ987DV4 ; https://youtu.be/kvdD0sYUSpY ; 
+- **Social Media Content** – https://youtu.be/-OTgJ987DV4 ; https://youtu.be/kvdD0sYUSpY ; https://youtube.com/shorts/eTgtQeaaG3o?feature=share ; https://youtube.com/shorts/Ddjs6Bw_iVE?feature=share ; https://youtube.com/shorts/p9aHiGOiSLE?feature=share ; https://youtube.com/shorts/k9g74MnAWHk?feature=share ; https://youtube.com/shorts/DdQEB2fGtnU?feature=share
 ---
 
 ## 🌐 Portfolio Links
