@@ -9,7 +9,8 @@ Hi, I'm **Rheva Lubis**, a passionate video editor with **16+ years of experienc
 ## 💼 What I Do
 - **Video Editing** — Adobe Premiere Pro, DaVinci Resolve, CapCut Pro  
 - **Motion Graphics** — Adobe After Effects  
-- **Creative Content** — Storytelling, transitions, dynamic effects  
+- **sound design** — Adobe audition, fairlight
+- **AI** — Midjourney, Veo 3
 
 ---
 
